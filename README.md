@@ -1,0 +1,5 @@
+- 👋 Sup, This Is @DarkSide1u
+- 👀 I’m A Developer 
+- 🌱 I Develope : FiveM / Scripts / Bots / Discord...
+- 📫 Contact Via Discord : https://discord.gg/YeNGdFDJW5
+- 
